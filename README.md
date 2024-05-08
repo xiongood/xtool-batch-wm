@@ -3,5 +3,5 @@
 
 ## 软件截图
 
-![image-20240508161230262](https://gitee.com/erhu02/images/raw/master/boke/20240508161232.png)
+![image-20240508161230262](https://7baa350e.telegraph-image-99j.pages.dev/file/ddb0f86fdcb79451ca91c.png)
 
